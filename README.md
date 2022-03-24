@@ -1,4 +1,4 @@
- ## Hi, I’m @ealijamal 👋 I’m interested in programming 👀 
+  ## Hi, I’m Golden man👋 I’m interested in programming 👀 
  ## I’m looking to collaborate html css javascript Projects💞️
 
 
