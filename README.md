@@ -1,5 +1,4 @@
-  ## Hi, I’m golden man👋 I’m interested in programming 👀 
- ## I’m looking to collaborate html css javascript Projects💞️
+  ##  I’m interested in programming 👀 
 
 
 
